@@ -56,6 +56,11 @@ Julio | 20 | Estudante
 
 
 
+![download](https://github.com/user-attachments/assets/d17b0b56-8962-46b9-80a0-992482f63512)
+
+
+
+https://youtu.be/fW1t4q30kks
 
 
 
@@ -66,8 +71,3 @@ Julio | 20 | Estudante
 
 
 
-
-
-
-
-![download](https://github.com/user-attachments/assets/6a4fcea2-14fa-4826-ae3c-499209b803f5)
